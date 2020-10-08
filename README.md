@@ -1,0 +1,3 @@
+# school
+fuck this site
+(hvordan kan jeg få det her til at virke)??????!?!!?!??
